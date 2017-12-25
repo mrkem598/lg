@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome Lg
 https://mrkem598.github.io/lg/
 
 ### Support or Contact
